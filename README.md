@@ -1,0 +1,3 @@
+Hi I'm bry! 
+I'm here to start building my portfolio for my college/university applications lol...
+I'm a teen. For now.
